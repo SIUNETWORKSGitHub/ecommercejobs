@@ -1,2 +1,3 @@
-# ecommerceJobsLinks
-After the announcement of the transition from Amazon Shoppers to WFM e-COMMERCE Shoppers Department, Most of my co-workers did not understand how to apply HERE IN MIAMI for the new promotion positions generated in this new department in Whole Food Market, so I decided to make this page with all the links and jobs open to the public for this new Adventure Shoppers.
+" Hello my SuperShoppersVIP 
+I'm Roberto Siu Lemus. 
+I created this html page to helping you: After the announcement of the transition from Amazon Shoppers to WFM e-COMMERCE Shoppers Department, Most of my co-workers did not understand how to apply HERE IN MIAMI Dade Area for the new promotion positions generated in this new department in Whole Food Market, so I decided to make this page with all available links and jobs open to the public for this new Adventure Shoppers.For the Shoppers Position, most of us will not have to apply. The transition will be automatic.However, the Shoppers who wish to apply to the new promotions that are already available for the new department within the Whole FOOD Market, below I have attached the Links so that they can apply."
